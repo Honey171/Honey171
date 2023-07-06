@@ -1,6 +1,6 @@
 ![](https://media.tenor.com/WuOwfnsLcfYAAAAC/star-wars-obi-wan-kenobi.gif)
 
-I'm Mehmet 22 years old, a nurse also a self-taught Front-End developer
+I'm Mehmet 22 years old, a graduated nurse also a self-taught Front-End developer
 
 I'm getting ***better*** every single day because coding has become an addiction and a passion.
 
